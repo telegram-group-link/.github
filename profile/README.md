@@ -20,23 +20,23 @@ Click on the “Join Now” button to become part of the group.
 If you love online games, updates, and discussions — these groups are perfect for you.  
 
 - **PUBG Players Community**  
-  👉 [Join Now](https://t.me/example1)  
+  👉 [Join Now](https://telegram.me/androidappterpilih)  
 - **Free Fire Squad Zone**  
-  👉 [Join Now](https://t.me/example2)  
+  👉 [Join Now](https://telegram.me/games_android_free_apk)  
 - **Mobile Legends Arena**  
-  👉 [Join Now](https://t.me/example3)  
+  👉 [Join Now](https://telegram.me/software_application)  
 
 ---
 
-### 📚 **Education Telegram Groups**
+### 📚 **Education Groups**
 Learn daily with useful study materials and exam updates.  
 
 - **Study Smart Notes**  
-  👉 [Join Now](https://t.me/example4)  
+  👉 [Join Now](https://telegram.me/eBookRoom)  
 - **Daily English Learning Group**  
-  👉 [Join Now](https://t.me/example5)  
+  👉 [Join Now](https://telegram.me/read)  
 - **Science & Tech Updates**  
-  👉 [Join Now](https://t.me/example6)  
+  👉 [Join Now](https://telegram.me/Business_Library)  
 
 ---
 
@@ -44,11 +44,11 @@ Learn daily with useful study materials and exam updates.
 Join groups for fun chats, memes, and trending videos.  
 
 - **Fun Chat World**  
-  👉 [Join Now](https://t.me/example7)  
+  👉 [Join Now](https://telegram.me/DailyEpicMemes)  
 - **Daily Jokes Hub**  
-  👉 [Join Now](https://t.me/example8)  
+  👉 [Join Now](https://telegram.me/memes)  
 - **Entertainment Buzz**  
-  👉 [Join Now](https://t.me/example9)  
+  👉 [Join Now](https://telegram.me/Funny)  
 
 ---
 
