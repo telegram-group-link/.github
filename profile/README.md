@@ -20,7 +20,7 @@ Click on the “Join Now” button to become part of the group.
 If you love online games, updates, and discussions — these groups are perfect for you.  
 
 - **PUBG Players Community**  
-  👉 [Join Now](https://telegram.me/androidappterpilih)  
+  👉 [Join Now](https://t.me/earnxcryptos)  
 - **Free Fire Squad Zone**  
   👉 [Join Now](https://telegram.me/games_android_free_apk)  
 - **Mobile Legends Arena**  
