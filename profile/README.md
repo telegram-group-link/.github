@@ -20,11 +20,11 @@ Click on the “Join Now” button to become part of the group.
 If you love online games, updates, and discussions — these groups are perfect for you.  
 
 - **PUBG Players Community**  
-  👉 [Join Now](https://t.me/earnxcryptos)  
+  👉 [Join Now](https://www.effectivegatecpm.com/v4rs98ye?key=b4881cf25bbd8ac79b07f923d683e526)  
 - **Free Fire Squad Zone**  
-  👉 [Join Now](https://telegram.me/games_android_free_apk)  
+  👉 [Join Now](https://www.effectivegatecpm.com/dphp0np0k?key=a7c98e46c41960712496d19147e84b08)  
 - **Mobile Legends Arena**  
-  👉 [Join Now](https://telegram.me/software_application)  
+  👉 [Join Now](https://www.effectivegatecpm.com/v4rs98ye?key=b4881cf25bbd8ac79b07f923d683e526)  
 
 ---
 
@@ -32,11 +32,11 @@ If you love online games, updates, and discussions — these groups are perfect 
 Learn daily with useful study materials and exam updates.  
 
 - **Study Smart Notes**  
-  👉 [Join Now](https://telegram.me/eBookRoom)  
+  👉 [Join Now](https://www.effectivegatecpm.com/dphp0np0k?key=a7c98e46c41960712496d19147e84b08)  
 - **Daily English Learning Group**  
-  👉 [Join Now](https://telegram.me/read)  
+  👉 [Join Now](https://www.effectivegatecpm.com/upud027ya7?key=1133e5f07f194da94c7ff3fd515bc354)  
 - **Science & Tech Updates**  
-  👉 [Join Now](https://telegram.me/Business_Library)  
+  👉 [Join Now](https://www.effectivegatecpm.com/upud027ya7?key=1133e5f07f194da94c7ff3fd515bc354)  
 
 ---
 
@@ -44,11 +44,11 @@ Learn daily with useful study materials and exam updates.
 Join groups for fun chats, memes, and trending videos.  
 
 - **Fun Chat World**  
-  👉 [Join Now](https://telegram.me/DailyEpicMemes)  
+  👉 [Join Now](https://www.effectivegatecpm.com/upud027ya7?key=1133e5f07f194da94c7ff3fd515bc354)  
 - **Daily Jokes Hub**  
-  👉 [Join Now](https://telegram.me/memes)  
+  👉 [Join Now](https://www.effectivegatecpm.com/dphp0np0k?key=a7c98e46c41960712496d19147e84b08)  
 - **Entertainment Buzz**  
-  👉 [Join Now](https://telegram.me/Funny)  
+  👉 [Join Now](https://www.effectivegatecpm.com/dphp0np0k?key=a7c98e46c41960712496d19147e84b08)  
 
 ---
 
